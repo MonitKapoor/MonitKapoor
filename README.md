@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Opearting systems
 - 📫 How to reach me: kapoor.monit@gmail.com
 - 😄 Pronouns: Dr
-- ⚡ Fun fact: This is just a sample! for real deal visit my Orcid
+- ⚡ Fun fact: This is just a sample! for real deal visit my Orcid at https://orcid.org/0000-0002-9036-6115 
   
