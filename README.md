@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: kapoor.monit@gmail.com
 - 😄 Pronouns: Dr
 - ⚡ Fun fact: This is just a sample! for real deal visit my profile at
-- 
+  
               Orcid : https://orcid.org/0000-0002-9036-6115
   
               LinkedIn: https://www.linkedin.com/in/monitkapoor01/
